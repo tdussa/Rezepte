@@ -42,7 +42,7 @@ Agavendicksaft dazugeben und unter Rühren lösen.
 
 Dann direkt von der Hitze nehmen und in frisch gespülte,
 vorgewärmte Flaschen füllen. Im Zweifel erst noch einen kleinen
-Schluck probieren (immer mit Wasser) und nachsüssen. Dann Deckel
+Schluck probieren (immer mit Wasser) und nachsüßen. Dann Deckel
 drauf und und abkühlen lassen (Vakuum in Flasche). Hält sich so
 ungefähr vier Wochen im Kühlschrank, je nachdem wie sauber man
 gearbeitet hat. Ist aber eigentlich nicht wirklich verderblich.
