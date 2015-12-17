@@ -15,7 +15,7 @@
 
 ## Zubereitung
 
-Die Früchte auspressen, und den Saft in einen Topf mit dem Wasser
+Die Früchte auspressen und den Saft in einen Topf mit dem Wasser
 geben. Die ausgepressten Schalen vierteln und gleichfalls in den Topf
 geben.
 
