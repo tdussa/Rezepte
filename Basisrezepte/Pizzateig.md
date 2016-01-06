@@ -1,5 +1,7 @@
 # Pizzateig
 
+(Via http://www.culinaricast.de/2014/06/12/mein-pizzateig/.)
+
 ## Zutaten
  + 700 g Mehl
  + 400 ml lauwarmes Wasser
