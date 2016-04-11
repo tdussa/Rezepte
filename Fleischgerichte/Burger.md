@@ -8,6 +8,7 @@
  + 2 Esslöffel Vollmilch
  + 1 Esslöffel Sojasauce
  + 1 Esslöffel Worcestersauce
+ + 1 Esslöffel Steaksauce, wenn gewünscht
  + 3/4 Teelöffel Salz
  + 3/4 Teelöffel Pfeffer
 
