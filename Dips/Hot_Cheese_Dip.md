@@ -10,5 +10,5 @@
 
 ## Zubereitung
  + Schmelzkäse, Milch und Frischkäse in einem Topf unter Rühren schmelzen.
- + Gouda und Paprika hinzufügen und etwa 10 Minuten köcheln lassen.
+ + Gouda und Peperoni hinzufügen und etwa 10 Minuten köcheln lassen.
  + In Schale füllen und abkühlen lassen.
