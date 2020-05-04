@@ -1,4 +1,4 @@
-# Baguetteteig
+# Baguettes
 
 (Via https://www.privatkoch-hamburg.de/baguette-backen/.)
 
