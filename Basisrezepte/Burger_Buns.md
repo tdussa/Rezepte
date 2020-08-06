@@ -4,7 +4,7 @@
 
 ## Zutaten
  + 500 g Mehl, Type 550
- + 200 ml lauwarmes Wasser
+ + 200 ml sowie 2 EL lauwarmes Wasser
  + 6 EL Milch
  + 42 g Frischhefe
  + 35 g Zucker
@@ -16,7 +16,7 @@
 ## Zubereitung
  + Wasser und 4 EL Milch vermischen, Zucker und Hefe darin auflösen.
  + Abgedeckt 10 Minuten gehen lassen.
- + Mehl, Salz, Ei und Butter hinzufügen; auf einer glatten Oberfläche
+ + Mehl, Salz, 1 Ei und Butter hinzufügen; auf einer glatten Oberfläche
    mindestens 10 Minuten kneten.
  + Abgedeckt 1 Stunde gehen lassen.
  + Teig in 8 Stücke teilen und zu Kugeln geformt auf Backpapier verteilen.
