@@ -21,5 +21,5 @@ Für 8 Muffins:
    4 Sekunden/Stufe 4; danach umfüllen).
  + Ei, Milch und Öl vermengen (Thermomix: 5 Sekunden/Stufe 3).
  + Mehlmischung hinzugeben und vermengen (Thermomix: 6 Sekunden/Stufe 4).
- + Masse in gefettete Muffinformen geben.
+ + Teig in gefettete Muffinformen geben.
  + 15 Minuten bei 200 Grad Celsius backen.
