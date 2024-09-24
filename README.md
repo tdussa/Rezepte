@@ -15,3 +15,7 @@
 ## Getränke
 
  + [Getränke](https://github.com/tdussa/Rezepte/tree/master/Getränke)
+
+## Pasta
+
+ + [Pasta](https://github.com/tdussa/Rezepte/tree/master/Pasta)
