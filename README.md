@@ -19,3 +19,7 @@
 ## Pasta
 
  + [Pasta](https://github.com/tdussa/Rezepte/tree/master/Pasta)
+
+## Salate
+
+ + [Salate](https://github.com/tdussa/Rezepte/tree/master/Salate)
