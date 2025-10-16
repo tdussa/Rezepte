@@ -10,8 +10,8 @@ Lasagne.
  + 1 Tube Tomatenmark, dreifach konzentriert
  + 1 Stange Lauch
  + 1 Stange Sellerie
- + 1 große Karotte
- + 1 große Zwiebel
+ + 1 Karotte
+ + 1 Zwiebel
  + Salz, Pfeffer, Oregano, Sojasauce, Butter, Crème fraîche, Wasser oder
    passierte Tomaten
 
